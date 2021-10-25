@@ -1,2 +1,2 @@
-# Among-Us-Remake-Modding-Version
-Sussy
+Amogus Sus Among Us
+Sussy Sus
